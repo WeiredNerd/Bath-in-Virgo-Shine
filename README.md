@@ -9,6 +9,7 @@ CC BY-NC 4.0
 
 ## 作品信息
 
+- 正文指路：https://archiveofourown.org/works/87418346/chapters/231578726
 - 状态：连载中
 - 当前进度：第一章已完结
 - 标签：Transformers / Alternate Universe / Political Intrigue / Military Sci-Fi / Slow Burn
